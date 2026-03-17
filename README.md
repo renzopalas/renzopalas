@@ -2,7 +2,7 @@
 
 ## -¿Quién soy?
 
-Soy Renzo Palas, un chico de 15 años,  estudio en una escuela tecnica y estoy transitando 4to año. También voy a la cultural y estoy por mi 6to año.                                                                                          ![aura](<Screenshot from 2026-03-17 11-03-41.png>)
+Soy Renzo Palas, un chico de 15 años,  estudio en una escuela tecnica y estoy transitando 4to año. También voy a la cultural y estoy por mi 6to año. ![aura](<Screenshot from 2026-03-17 11-03-41.png>)
 
 ## ¿Qué cosas me gustan hacer en mi tiempo libre? 
 
